@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows smart Transition: audio-sync & 4K-export is the best Shotcut for PC | Shotcut for Windows transition, featuring audio-sync and 4K-export.
 
 
 
